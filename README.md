@@ -41,6 +41,12 @@ Página do The Last Of US
 
 <br>
 
+- Me siga nas redes sociais:
+- [Linkedin](https://www.linkedin.com/in/thamyrescavalcante/)
+- [Instagran](https://www.instagram.com/thamyres__cavalcante/)
+
+<br>
+
 ---
 
 Feito com ♥ by Thamyres Cavalcante.
